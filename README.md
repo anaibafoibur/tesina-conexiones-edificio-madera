@@ -1,1 +1,1 @@
-# tesina-conexiones-edifico-madera
+# tesina-conexiones-edificio-madera
